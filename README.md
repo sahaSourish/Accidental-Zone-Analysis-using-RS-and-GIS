@@ -1,0 +1,1 @@
+# Accidental-Zone-Analysis-using-RS-and-GIS
